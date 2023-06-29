@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @borisbrechka
+- 👀 I’m interested in cyber security
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on companies around the world with job opportunities in the field of cybersecurity
+- 📫 How to reach me? Write in telegram @phytonboss
+- 😇 Good day!
